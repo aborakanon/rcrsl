@@ -7,5 +7,5 @@
 
 ## sejak kapan waktu menjadi boss terakhir didalam hidup ku
 
-
+## tidak ikut menyertakan orang yang besangkutan (orang yang sedang mereka bicarakan) adalah "penghakiman sepihak"
 
