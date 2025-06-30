@@ -10,3 +10,5 @@
 ## tidak ikut menyertakan orang yang besangkutan (orang yang sedang mereka bicarakan) adalah "penghakiman sepihak"
 
 ## tanah palestina itu sudah jelas sebuah wilayah bukanlah agama dan palestina itu terdapat manusia sama seperti kita, perbedaanya manusia yang ada disana diperlakukan tidak selayaknya manusia
+
+## q: apakah seseorang sering berbohong, akalnya sudah diambil alih oleh kekuatan sihir
