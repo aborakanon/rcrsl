@@ -21,5 +21,4 @@
 
 ## lebih bisa dipercaya mana antara pemikiran dan pengalaman
 
-
-
+## suaranya kok beda yah, suaranya seperti mau membelah air laut
