@@ -22,3 +22,13 @@
 ## lebih bisa dipercaya mana antara pemikiran dan pengalaman
 
 ## suaranya kok beda yah, suaranya seperti mau membelah air laut
+
+## m*t* berdiri = b*n*h diri
+
+## ritual berjongkok sambil ngeden
+
+## jayanya menemukan barang ditempat umum
+
+## dijadikan t*mb*l untuk sekedar meredam amarah masyarakat
+
+## menuduh menguras kamar mandi
